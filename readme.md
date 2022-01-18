@@ -1,3 +1,4 @@
+ASc this course is fantastic and information detailed
 # Learn OPENCV in 3 HOURS
 
 https://www.youtube.com/watch?v=WQeoO7MI0Bs&list=PL4ve0MDPJ_Ht8atBpL7BYqIwOgJjnWbvH&index=41&t=52s
